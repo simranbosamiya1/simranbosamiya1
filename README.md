@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Simran Bosamiya, graduate Computer Science student at North Carolina State University.
